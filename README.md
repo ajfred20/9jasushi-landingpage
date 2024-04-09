@@ -1,3 +1,4 @@
+![Screenshot 2024-04-09 at 08-26-16 9jaSushi](https://github.com/ajfred20/9jasushi-landingpage/assets/138402744/2631f81b-c85d-4cb3-a954-8448a23aee31)
 9jaSushi - Japanese and Nigerian Sushi Delivery Service 🍣🍱
 Overview
 
